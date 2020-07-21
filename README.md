@@ -19,4 +19,4 @@ Thank you for using and I wish you a good experience.
 My social media:
 
 Instagram = https://www.instagram.com/moha.m.med.7063/
-Telegram = https://t.me/mohsen7062
+Telegram = @ERROR_7063
